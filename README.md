@@ -5,7 +5,7 @@
 
 <br>
 
-- 📚 I'm currently studying Information Systems at IFNMG
+- 📚 Bachelor's degree in Information Systems from the Federal Institute of Northern Minas Gerais
 - 📫 How to find me **denilsonmlo42@gmail.com**
 
 <br>
